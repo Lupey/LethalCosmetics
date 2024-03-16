@@ -1,1 +1,2 @@
-"Roblox Doge Hat" (https://skfb.ly/oxFuU) by RawGoldIngot is licensed under Creative Commons Attribution-ShareAlike (http://creativecommons.org/licenses/by-sa/4.0/).
+- "Roblox Doge Hat" (https://skfb.ly/oxFuU) by RawGoldIngot is licensed under Creative Commons Attribution-ShareAlike (http://creativecommons.org/licenses/by-sa/4.0/).
+- "Open Eyes Joy Emoji" (https://skfb.ly/6Vpyt) by gitanno is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
