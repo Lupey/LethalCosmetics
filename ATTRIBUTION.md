@@ -1,2 +1,6 @@
 - "Roblox Doge Hat" (https://skfb.ly/oxFuU) by RawGoldIngot is licensed under Creative Commons Attribution-ShareAlike (http://creativecommons.org/licenses/by-sa/4.0/).
 - "Open Eyes Joy Emoji" (https://skfb.ly/6Vpyt) by gitanno is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "3d Poop Emoji" (https://skfb.ly/6nxVr) by Dimensión N is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Emoji 062 Without mouth" (https://skfb.ly/ot7Ps) by HQ3DMOD is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "emoji angry cartoon Emoticon Smiley" (https://skfb.ly/oMV9A) by 3dblender_bms is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
+- "Octane - Rocket League Car" (https://skfb.ly/ooqDI) by Jako is licensed under Creative Commons Attribution (http://creativecommons.org/licenses/by/4.0/).
